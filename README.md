@@ -16,3 +16,5 @@ I go to **HSTAT**.
     * Service
     * Ap Bio
     * Study hall
+    
+# Kacey is the awesomest ever and she is my favorite coding buddy <3
